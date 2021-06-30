@@ -1,4 +1,9 @@
 # kuul student's words
-barely sentences
+
+barely make sense
+
+not really sentences
+
 tried though
-excuse please
+
+sorry please
