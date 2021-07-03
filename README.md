@@ -1,4 +1,4 @@
-# kuul student's words
+# cool student's words
 
 barely make sense
 
