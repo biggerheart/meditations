@@ -1,4 +1,4 @@
-# cool student's words
+# words
 
 barely make sense
 
